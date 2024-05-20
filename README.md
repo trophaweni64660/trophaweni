@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+Despite the challenges posed by piracy, the music industry saw the emergence of legal digital music platforms like Apple's iTunes Store, which launched in 2001.
