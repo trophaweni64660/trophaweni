@@ -1,1 +1,1 @@
-The rise of K-pop in the 2010s brought Korean music and culture to the global stage, with acts like BTS, BLACKPINK, and EXO gaining massive popularity worldwide.
+Alternative rock bands like Radiohead, Oasis, and Beck gained prominence in the 1990s, offering diverse sounds and pushing musical boundaries.
