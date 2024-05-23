@@ -1,1 +1,1 @@
-Alternative rock bands like Radiohead, Oasis, and Beck gained prominence in the 1990s, offering diverse sounds and pushing musical boundaries.
+Beyoncé's surprise self-titled album release on iTunes in 2013 set a new standard for music drops, with no prior announcement or promotion.
