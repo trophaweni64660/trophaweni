@@ -1,1 +1,1 @@
-Beyoncé's surprise self-titled album release on iTunes in 2013 set a new standard for music drops, with no prior announcement or promotion.
+The popularity of social media platforms like Instagram, Twitter, and TikTok gave rise to viral music challenges, dance trends, and meme-worthy songs.
