@@ -1,1 +1,1 @@
-"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
+Cardi B's debut single "Bodak Yellow" (2017) made history by becoming the first solo female rap song to top the Billboard Hot 100 chart since Lauryn Hill in 1998.
