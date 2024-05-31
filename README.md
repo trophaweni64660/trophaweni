@@ -1,1 +1,1 @@
-The rise of K-pop in the 2010s brought Korean music and culture to the global stage, with acts like BTS, BLACKPINK, and EXO gaining massive popularity worldwide.
+The 1990s marked the globalization of music, with artists from around the world gaining international recognition and influencing cross-cultural exchange.
