@@ -1,1 +1,1 @@
-The 1990s marked the globalization of music, with artists from around the world gaining international recognition and influencing cross-cultural exchange.
+Beyoncé's surprise self-titled album release on iTunes in 2013 set a new standard for music drops, with no prior announcement or promotion.
