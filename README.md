@@ -1,1 +1,1 @@
-The 1990s produced iconic pop stars like Britney Spears, Christina Aguilera, and the Backstreet Boys, who dominated the charts and shaped the pop music landscape.
+Pearl Jam's debut album "Ten" (1991) received critical acclaim and is considered one of the greatest rock albums of all time, featuring singles like "Alive" and "Jeremy."
