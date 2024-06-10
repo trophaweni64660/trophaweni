@@ -1,1 +1,1 @@
-Britney Spears's debut single "...Baby One More Time" (1998) propelled her to superstardom and became one of the best-selling singles of all time.
+OutKast released their critically acclaimed album "Stankonia" in 2000, which featured the hit singles "Ms. Jackson" and "B.O.B. (Bombs Over Baghdad)."
