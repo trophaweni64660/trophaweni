@@ -1,1 +1,1 @@
-The rise of digital music piracy, facilitated by peer-to-peer file-sharing services like Napster, challenged the music industry's traditional business model in the early 2000s.
+Pearl Jam's debut album "Ten" (1991) received critical acclaim and is considered one of the greatest rock albums of all time, featuring singles like "Alive" and "Jeremy."
