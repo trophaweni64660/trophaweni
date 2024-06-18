@@ -1,1 +1,1 @@
-Pearl Jam's debut album "Ten" (1991) received critical acclaim and is considered one of the greatest rock albums of all time, featuring singles like "Alive" and "Jeremy."
+The popularity of MP3 players like the iPod, introduced by Apple in 2001, revolutionized how people consumed and listened to music on the go.
