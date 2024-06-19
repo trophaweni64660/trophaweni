@@ -1,1 +1,1 @@
-The grunge movement emerged from the Seattle music scene in the early 1990s, with bands like Nirvana, Pearl Jam, and Soundgarden gaining widespread popularity.
+The Notorious B.I.G.'s debut album "Ready to Die" (1994) established him as one of the greatest rappers of all time, featuring tracks like "Juicy" and "Big Poppa."
