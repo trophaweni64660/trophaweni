@@ -1,1 +1,1 @@
-The Notorious B.I.G.'s debut album "Ready to Die" (1994) established him as one of the greatest rappers of all time, featuring tracks like "Juicy" and "Big Poppa."
+The popularity of MP3 players like the iPod, introduced by Apple in 2001, revolutionized how people consumed and listened to music on the go.
