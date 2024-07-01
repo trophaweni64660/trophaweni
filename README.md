@@ -1,1 +1,1 @@
-The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
+Beyoncé's visual album "Lemonade" (2016) received widespread acclaim for its exploration of themes like infidelity, race, and feminism, sparking discussions about black womanhood.
