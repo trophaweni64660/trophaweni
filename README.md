@@ -1,1 +1,1 @@
-*NSYNC's album "No Strings Attached" debuted at number one on the Billboard 200 chart and set a record for the highest first-week sales at the time.
+The 2010s marked the rise of music streaming platforms like Spotify, Apple Music, and Tidal, revolutionizing how people consume and access music.
