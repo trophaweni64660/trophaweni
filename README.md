@@ -1,1 +1,1 @@
-Jay-Z's album "The Dynasty: Roc La Familia" was released in 2000, featuring hits like "I Just Wanna Love U (Give It 2 Me)" and "Change the Game."
+Cardi B's debut single "Bodak Yellow" (2017) made history by becoming the first solo female rap song to top the Billboard Hot 100 chart since Lauryn Hill in 1998.
