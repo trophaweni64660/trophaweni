@@ -1,1 +1,1 @@
-Mandy Moore's album "I Wanna Be with You" was released in 2000, featuring the title track and other singles that showcased her transition from teen pop to more mature themes.
+Latin music experienced a surge in popularity in the 1990s, with artists like Ricky Martin, Shakira, and Selena crossing over to the mainstream market.
