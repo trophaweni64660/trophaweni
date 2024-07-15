@@ -1,1 +1,1 @@
-Latin music experienced a surge in popularity in the 1990s, with artists like Ricky Martin, Shakira, and Selena crossing over to the mainstream market.
+The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
