@@ -1,1 +1,1 @@
-The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
+"Gangnam Style" by Psy, released in 2012, became the first YouTube video to reach one billion views and sparked a global dance craze.
