@@ -1,1 +1,1 @@
-Britney Spears's debut single "...Baby One More Time" (1998) propelled her to superstardom and became one of the best-selling singles of all time.
+Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
