@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+The 1990s witnessed the golden age of hip hop, with artists like Tupac Shakur, The Notorious B.I.G., and Wu-Tang Clan dominating the charts and shaping the culture.
